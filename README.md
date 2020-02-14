@@ -1,5 +1,5 @@
 ## Adrian Ferreres
-<link rel="shortcut icon" type="image/x-icon" href="favicon.ico">
+<link rel="shortcut icon" type="image/png" href="/favicon.png?">
 ![Evangelizando](./imagenes/evangelizando.jpeg)
 
 Hola, soy Adrián, frontend developa al estilo español.  
