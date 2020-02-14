@@ -10,3 +10,9 @@ Estuve una temporada en Alemania, pero decidí volverme porque `Las decisiones s
 Mi vida así en general es muy bonita, porque `Hay cosas bonitas, otras no tanto y no me acuerdo de ninguna`
 
 Me encanta programar, me hace sentir que puedo hacer cualquier cosa, `Yo puedo asegurarles a ustedes que haré todo lo que pueda y un poco más de lo que pueda, si es que eso es posible, y haré todo lo posible e incluso lo imposible, si también lo imposible es posible`
+
+Y solo puedo decir:
+
+`It’s very difficult... todo esto`
+
+FELIZ CUMPLE!!
